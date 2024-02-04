@@ -15,11 +15,11 @@ Sous la troisième république :
 Fait surprenant : la troisième république était censé être temporaire, il y a une absence de réel textes constitutionnels. On attendait juste un prétendant au trône potable. Finalement maintenu jusqu'en 1940 (régime de vichy)
 
 De l'eau à coulé sous les ponts maintenant la gauche et la droit en France ce sont :
-- Extrême Gauche : LO( Nathalie Arthaud), NPA (Poutou), PCF ( Roussel) , LFI (Mélenchon) ? (sujet à discussion)
-- Gauche : PS (Hidalgo, Hollande, ...) , EELV (Sandrine Rousseau, Jadot)
-- Centre/Centre Droit : LREM (Macron) , Modem (Bayrou), Résistons( Lassalle).
-- Droite : LR ( Ciotti, Bertrand, Pécresse), Debout la France (Nicolas dupont Aignan.
-- Extrême droite : RN (Le Pen / Bardella) , Reconquête (Zemmour) 
+- Extrême Gauche : LO ( Lutte ouvrière : Nathalie Arthaud), NPA ( Nouveau parti anticapitaliste : Poutou), PCF (Parti communiste français : Roussel) , LFI ( La France Insoumise : Mélenchon) ? (sujet à discussion)
+- Gauche : PS (Parti socialiste : Hidalgo, Hollande, ...) , EELV (Europe Ecologie les Verts : Sandrine Rousseau, Jadot)
+- Centre/Centre Droit : LREM (La république en marche : Macron) , Modem ( Mouvement démocrate Bayrou), Résistons( Lassalle).
+- Droite : LR ( Les républicains : Ciotti, Bertrand, Pécresse), Debout la France (Nicolas dupont Aignan.
+- Extrême droite : RN (Rassemblement National : Le Pen / Bardella) , Reconquête (Zemmour) 
 
 Les grandes idées des deux camps :
 - Gauche : solidarité, libertés fondamentales et autres (dans le sens plus de droit pour les personnes comme par exemple l'IVG etc... ), justice sociale, nationalisation (des biens essentiels)
